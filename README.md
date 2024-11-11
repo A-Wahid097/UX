@@ -1,1 +1,1 @@
-visit the side on https://a-wahid097.github.io/UX/
+visit the site on https://a-wahid097.github.io/UX/
